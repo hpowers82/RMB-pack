@@ -2,7 +2,7 @@
 
 ## Credits:
 
-[Hotbar, Swords (edited)](www.mediafire.com/folder/bu3drsi1c8rgi/TimeDeo%27s_2k_Packs)
+[Hotbar, Swords (edited), Bedrock](www.mediafire.com/folder/bu3drsi1c8rgi/TimeDeo%27s_2k_Packs)
 
 [Gapple](https://bit.ly/3mAPIG1)
 
