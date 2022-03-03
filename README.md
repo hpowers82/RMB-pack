@@ -1,6 +1,4 @@
-# HD's RMB pack (1.16+)
 
-## Credits:
 
 [Hotbar, Swords (edited), Bedrock](www.mediafire.com/folder/bu3drsi1c8rgi/TimeDeo%27s_2k_Packs)
 
